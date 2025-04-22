@@ -1,0 +1,1 @@
+# BlueLock-Rivals-Script-Zigma
